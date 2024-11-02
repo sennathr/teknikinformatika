@@ -1,0 +1,2 @@
+# teknikinformatika
+FOR PERSONAL ONLY
